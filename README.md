@@ -7,4 +7,4 @@ Prioritize the needs of the team before our own. Our needs will not always coinc
 
 ### Reliable teammates are effective colleagues
 
-A good team requires dependability. Team members are expected to uphold their promises and provide outcomes. Members of the team therefore encouraged to follow the philosophy of underpromise and overdeliver. Key updates should be communicated.
+A good team requires dependability. Team members are expected to uphold their promises and provide outcomes. Members of the team therefore encouraged to follow the philosophy of underpromise and overdeliver. Our projects' key status updates should be shared within the team members on a regular basis.
