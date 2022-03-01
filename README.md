@@ -7,4 +7,4 @@ Prioritize the needs of the team before our own. Our needs will not always coinc
 
 ### Reliable teammates are effective colleagues
 
-A good team requires dependability.
+A good team requires dependability. Team members are expected to uphold their promises and provide outcomes.
