@@ -12,3 +12,8 @@ A good team requires dependability. Team members are expected to uphold their pr
 ### Exhibiting Positivity
 
 We ought to highlight our colleagues' qualities while abstaining from gossiping in order to maintain a good mindset by avoiding complaining and seeking positivism.
+
+
+### Respecting our colleauges
+
+We should treat our teammates with respect and be kind to each other.
