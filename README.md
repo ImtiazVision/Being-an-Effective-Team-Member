@@ -28,6 +28,6 @@ Encourage people to participate. Be helpful and supportive of team decisions.
 
 ### Professionalism 
 
-Professionalism is the impression we create and how our colleagues represent us to others.
+Professionalism is the impression we create and how our colleagues represent us to others. It is contingent upon our competence and accomplishment of tasks, as well as our demeanor.
 
 
