@@ -11,4 +11,4 @@ A good team requires dependability. Team members are expected to uphold their pr
 
 ### Exhibiting Positivity
 
-We ought to emphasize our colleagues' strengths while refraining from gossiping so that we can keep a positive attitude.
+We ought to highlight our colleagues' qualities while abstaining from gossiping in order to maintain a good mindset by avoiding complaining and seeking positivism.
