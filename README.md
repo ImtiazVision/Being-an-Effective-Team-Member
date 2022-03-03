@@ -21,3 +21,7 @@ We should treat our teammates with respect and be kind to each other. We must be
 ### Proactiveness
 
 Plan ahead of time to reduce the team's workload as proactive teammates are ideal.
+
+### Exhibiting a Collaborative Spirit
+
+Encourage people to participate. Be helpful and supportive of team decisions.
