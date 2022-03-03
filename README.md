@@ -25,3 +25,9 @@ Plan ahead of time to reduce the team's workload as proactive teammates are idea
 ### Exhibiting a Collaborative Spirit
 
 Encourage people to participate. Be helpful and supportive of team decisions.
+
+### Professionalism 
+
+Professionalism is the impression we create and how our colleagues represent us to others.
+
+
