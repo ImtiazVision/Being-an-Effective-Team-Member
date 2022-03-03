@@ -32,7 +32,7 @@ Professionalism is the impression we create and how our colleagues represent us 
 
 ### Strategy 
 
-Ideal colleagues tackle each endeavor with a long-term perspective in mind.
+Ideal colleagues tackle each endeavor with a long-term perspective in mind. We must strike a balance between work and relationships in order to demonstrate that we are strategically focused on the overall big picture of a project. 
 
 
 
