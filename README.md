@@ -16,4 +16,4 @@ We ought to highlight our colleagues' qualities while abstaining from gossiping 
 
 ### Respecting our colleauges
 
-We should treat our teammates with respect and be kind to each other. We must be considerate of their time, boundaries, and thoughts. Time is a valuable resource that we do not want to waste. Healthy disagreement can assist teams in considering diverse points of view. We should avoid disparaging or diminishing opinions with which we disagree with our colleagues.
+We should treat our teammates with respect and be kind to each other. We must be considerate of their time, boundaries, and thoughts. Time is a valuable resource that we do not want to waste. Healthy disagreement can assist teams in considering diverse points of view. We should avoid disparaging or diminishing opinions with which we disagree with our colleagues. People will remember how we made them feel for the rest of their lives. As a result, we must exercise caution in how we interact with people.
