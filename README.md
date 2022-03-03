@@ -16,4 +16,4 @@ We ought to highlight our colleagues' qualities while abstaining from gossiping 
 
 ### Respecting our colleauges
 
-We should treat our teammates with respect and be kind to each other.
+We should treat our teammates with respect and be kind to each other. We must be considerate of their time, boundaries, and thoughts.
