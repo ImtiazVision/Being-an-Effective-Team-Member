@@ -34,5 +34,8 @@ Professionalism is the impression we create and how our colleagues represent us 
 
 Ideal colleagues tackle each endeavor with a long-term perspective in mind. We must strike a balance between work and relationships in order to demonstrate that we are strategically focused on the overall big picture of a project. We must also learn from our errors and be adaptable. If we place a higher premium on people than on outcomes, we will react with grace to errors.
 
+### Self-awareness to understand others
+
+Learn about ourselves to learn about others.
 
 
