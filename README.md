@@ -1,4 +1,4 @@
-# Being-an-Effective-Team-Member
+# Being-an-Effective-Team-Member :
 
 
 ### Prioritize team objectives and foster trust
